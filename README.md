@@ -1,3 +1,8 @@
 # caculo-IR
-banana<img width="371" height="350" alt="BanDiscordModGIF" src="https://github.com/user-attachments/assets/3561a92c-9e21-47f7-8987-9ac83b2f3a7b" />
+banana
+<img width="498" height="337" alt="GyroGIF" src="https://github.com/user-attachments/assets/73fdb44a-6752-4e6c-9c2f-f96d0b7b0712" />
+
+
+
+
 
